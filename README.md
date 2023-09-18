@@ -29,6 +29,7 @@ And, in the realm of modernity, let it be known that being a Discord mod is my f
 <gif>![image](https://github.com/RealityShowup/RealityShowup/assets/143022243/38341a4e-2650-4005-87ae-d47e219df842)
 <gif>
 
+<h2>view count UwU</h2>
 <img src="https://profile-counter.glitch.me/{RealityShowup}/count.svg" alt="RealityShowup :: Visitor's Count" />
 <!---
 RealityShowup/RealityShowup is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
