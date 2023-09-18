@@ -4,7 +4,8 @@
 
 I'm willing to marry a Japanese woman, adopt Japanese children and even live in Japan for the rest of my life. Hell, I'm even learning the language by watching undubbed anime. Plus, I cook a mean bowl of rice (for those who don't know, Japanese eat a lot of rice, I do too my Mom says that I act like a Japanese person because of all the rice I eat and the anime I watch).</subtext>
 
-<gif>![image](https://github.com/RealityShowup/RealityShowup/assets/143022243/13a58200-b0e1-4421-be16-93280b5cd71f)<gif>
+<gif>![image](https://github.com/RealityShowup/RealityShowup/assets/143022243/38341a4e-2650-4005-87ae-d47e219df842)
+<gif>
 
 <!---
 RealityShowup/RealityShowup is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
