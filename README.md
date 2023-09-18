@@ -8,7 +8,10 @@ Perchance, let these fair maidens of Japan recognize the sincerity of my intenti
 
 And, in the realm of modernity, let it be known that being a Discord mod is my favorite pastime activity, one that garners admiration and, dare I say, the attentions of fair maidens. 😼</subtext>
 
-<subtext>Hobbies~~<subtext>
+<img src="https://github-readme-streak-stats.herokuapp.com/?user=RealityShowup&theme=tokyonight" alt="mystreak"/>
+
+
+<h1>Hobbies~~</h1>
 <ul>~Watching anime</ul>
 <ul>~Skateboarding</ul>
 <ul>~Star trek<3333</ul>
@@ -26,6 +29,7 @@ And, in the realm of modernity, let it be known that being a Discord mod is my f
 <gif>![image](https://github.com/RealityShowup/RealityShowup/assets/143022243/38341a4e-2650-4005-87ae-d47e219df842)
 <gif>
 
+<img src="https://profile-counter.glitch.me/{RealityShowup}/count.svg" alt="RealityShowup :: Visitor's Count" />
 <!---
 RealityShowup/RealityShowup is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
