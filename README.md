@@ -8,6 +8,21 @@ Perchance, let these fair maidens of Japan recognize the sincerity of my intenti
 
 And, in the realm of modernity, let it be known that being a Discord mod is my favorite pastime activity, one that garners admiration and, dare I say, the attentions of fair maidens. 😼</subtext>
 
+<subtext>Hobbies~~<subtext>
+<ul>~Watching anime</ul>
+<ul>~Skateboarding</ul>
+<ul>~Star trek<3333</ul>
+<ul>~Stardew valley:))</ul>
+<ul>~VRchat :DDD</ul>
+<ul>~Moderator of an online forum</ul>
+<ul>~Meditation and Mindfullness</ul>
+<ul>~Photography and Gardening</ul>
+<ul>~LEague of legends and World of Warcraft~~</ul>
+<ul>~DND <3333333<ul></ul>
+
+
+
+
 <gif>![image](https://github.com/RealityShowup/RealityShowup/assets/143022243/38341a4e-2650-4005-87ae-d47e219df842)
 <gif>
 
