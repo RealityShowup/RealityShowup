@@ -1,8 +1,11 @@
-<h1>HELLOOOOOO</h1>
-<h2>Konichiwa brothers </h2>
-<subtext>Why are Japanese girls so hard to talk to? I'm polite. Each time I approach one, I say "konichiwa". I always ask them about their favourite anime before talking about my waifu. They're usually really shy (which is cute imo) but I hate that I have to be the one to constantly engage in conversations with them, and how they usually get disinterested because I'm a white guy. Yes, I get that it's awkward because of things like Pearl Harbor, but I don't hold it against them. They weren't in Unit 731, so why judge them for it? Why can't the himes just realize that I respect Japanese culture and that I really want to be part of it.
+<h1>Konichiwa brothers </h1>
+<subtext>My noble inquiry doth dwell upon the nature of conversations with fair maidens from the land of the rising sun. With utmost politeness, I extend my greeting with a "konichiwa," and inquired into their favored anime, for such a pursuit is a common interest. However, my consternation doth arise from the reluctance displayed by these demure creatures, though their shyness doth hold an endearing quality, akin to a blossoming sakura. 😌
 
-I'm willing to marry a Japanese woman, adopt Japanese children and even live in Japan for the rest of my life. Hell, I'm even learning the language by watching undubbed anime. Plus, I cook a mean bowl of rice (for those who don't know, Japanese eat a lot of rice, I do too my Mom says that I act like a Japanese person because of all the rice I eat and the anime I watch).</subtext>
+'Tis a grievous lamentation that I, as the initiator of discourse, must bear the weight of conversation unassisted. Alas, their waning interest, which I perceive stems from my status as a fair-skinned gentleman of foreign origin, doth vex my spirit. Yet, let it be known that I harbor no ill will, for the misdeeds of the past ought not to befall the blameless present. The transgressions of Pearl Harbor are not theirs to bear, nor should they be haunted by the shadow of Unit 731. 🌸
+
+Mayhap these enchanting damsels should fathom the depths of my reverence for their cherished culture and my earnest desire to be an integral part thereof. I am prepared to embark upon a lifelong journey, wherein I wouldst pledge my troth to a Japanese lady, embrace her kin as mine own, and dwell amidst the splendors of Japan until the end of my days. Lo, I even partake in the pursuit of linguistic mastery, through the consumption of anime in its undubbed glory. Furthermore, I proudly profess my skill in the culinary arts, for I craft a delectable bowl of rice, that sustenance which is beloved by the Japanese, and thus am I akin to their kind. 🍚
+
+Perchance, let these fair maidens of Japan recognize the sincerity of my intentions and the fervor of my devotion. For, in this tale of life, I aspire to be more than a passing stranger but a humble participant in the splendor of their culture. 🌟.</subtext>
 
 <gif>![image](https://github.com/RealityShowup/RealityShowup/assets/143022243/38341a4e-2650-4005-87ae-d47e219df842)
 <gif>
